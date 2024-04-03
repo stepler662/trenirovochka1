@@ -1,0 +1,2 @@
+# trenirovochka1
+удалить
